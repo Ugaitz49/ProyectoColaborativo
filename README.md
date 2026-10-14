@@ -1,1 +1,1 @@
-ProyectoColaborativo Conflictos
+Modificación hecha por Alumno A
